@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi my name is Thelma. I am an Information Systems MS student @CalStateLA. 
+Information Systems MS student @CalStateLA. 
 
 
 ## 🌐 Socials:
